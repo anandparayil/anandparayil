@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @anandparayil
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning cse
+- 📫 How to reach me? Just text me 
